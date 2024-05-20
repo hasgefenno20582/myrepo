@@ -1,1 +1,1 @@
-Sir Bobby Charlton, a Manchester United and England legend, survived the Munich air disaster in 1958 and went on to win the World Cup in 1966.
+The development of sports science and analytics has led to advancements in player conditioning, injury prevention, and tactical analysis in soccer.
