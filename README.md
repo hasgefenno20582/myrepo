@@ -1,1 +1,1 @@
-The development of sports science and analytics has led to advancements in player conditioning, injury prevention, and tactical analysis in soccer.
+Diego Maradona's "Goal of the Century" against England in the 1986 World Cup was voted the FIFA Goal of the Century in 2002.
