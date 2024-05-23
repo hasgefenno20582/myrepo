@@ -1,1 +1,1 @@
-The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
+Johan Cruyff, known for his role in popularizing "Total Football," was a three-time Ballon d'Or winner and a key figure in Dutch soccer history.
