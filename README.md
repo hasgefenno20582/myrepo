@@ -1,1 +1,1 @@
-Johan Cruyff, known for his role in popularizing "Total Football," was a three-time Ballon d'Or winner and a key figure in Dutch soccer history.
+The introduction of Video Assistant Referee (VAR) technology has impacted the game by allowing officials to review key decisions, reducing controversial calls.
