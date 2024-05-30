@@ -1,1 +1,1 @@
-The Maracanã Stadium in Rio de Janeiro, Brazil, is one of the most iconic soccer venues in the world, hosting numerous historic matches and events.
+The Old Firm derby between Scottish clubs Celtic and Rangers is steeped in religious and cultural history, dividing the city of Glasgow.
