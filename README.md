@@ -1,1 +1,1 @@
-The Brazil national team's "Joga Bonito" (Beautiful Game) philosophy prioritizes flair, creativity, and entertaining play, reflecting the country's soccer culture.
+The FIFA Women's World Cup has grown in popularity and prestige, with the United States winning the tournament four times as of 2019.
