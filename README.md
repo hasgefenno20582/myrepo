@@ -1,1 +1,1 @@
-The rivalry between FC Barcelona and Real Madrid, known as "El Clásico," is one of the most intense and storied rivalries in world soccer.
+Dennis Bergkamp's goal for the Netherlands against Argentina in the 1998 FIFA World Cup, where he controlled a long pass with a sublime touch before finishing, is revered for its technical brilliance.
