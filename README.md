@@ -1,1 +1,1 @@
-Dennis Bergkamp's goal for the Netherlands against Argentina in the 1998 FIFA World Cup, where he controlled a long pass with a sublime touch before finishing, is revered for its technical brilliance.
+Brazil holds the record for the most World Cup victories, with five titles in 1958, 1962, 1970, 1994, and 2002.
