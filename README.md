@@ -1,1 +1,1 @@
-Brazil holds the record for the most World Cup victories, with five titles in 1958, 1962, 1970, 1994, and 2002.
+Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
