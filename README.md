@@ -1,1 +1,1 @@
-Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
+Pelé remains the youngest player to ever win a FIFA World Cup, achieving the feat at the age of 17 years and 249 days in 1958.
