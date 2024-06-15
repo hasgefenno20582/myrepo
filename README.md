@@ -1,1 +1,1 @@
-The development of sports science and analytics has led to advancements in player conditioning, injury prevention, and tactical analysis in soccer.
+The Maracanã Stadium in Rio de Janeiro, Brazil, hosted two FIFA World Cup finals and was the venue for the opening and closing ceremonies of the 2016 Rio Olympics.
