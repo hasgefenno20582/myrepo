@@ -1,1 +1,1 @@
-Brazil holds the record for the most World Cup victories, with five titles in 1958, 1962, 1970, 1994, and 2002.
+Alfredo Di Stefano, known as the "Blond Arrow," was a legendary figure for Real Madrid, playing a key role in their early European successes.
