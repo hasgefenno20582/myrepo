@@ -1,1 +1,1 @@
-The Maracanã Stadium in Rio de Janeiro, Brazil, hosted two FIFA World Cup finals and was the venue for the opening and closing ceremonies of the 2016 Rio Olympics.
+Brazil holds the record for the most World Cup victories, with five titles in 1958, 1962, 1970, 1994, and 2002.
