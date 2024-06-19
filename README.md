@@ -1,1 +1,1 @@
-Alfredo Di Stefano, known as the "Blond Arrow," was a legendary figure for Real Madrid, playing a key role in their early European successes.
+The "Icelandic thunderclap," a rhythmic clapping chant performed by Iceland fans, became a symbol of their team's success and underdog spirit in international competitions.
