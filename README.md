@@ -1,1 +1,1 @@
-La Masia, the youth academy of FC Barcelona, has produced numerous world-class players, including Lionel Messi, Andres Iniesta, and Xavi Hernandez.
+Sir Bobby Charlton, a Manchester United and England legend, survived the Munich air disaster in 1958 and went on to win the World Cup in 1966.
