@@ -1,1 +1,1 @@
-Zinedine Zidane's volleyed goal for Real Madrid against Bayer Leverkusen in the 2002 UEFA Champions League final is often cited as one of the greatest goals in Champions League history.
+Soccer is often used as a tool for social change and development, with organizations like streetfootballworld harnessing its potential to address issues like poverty and inequality.
