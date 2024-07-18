@@ -1,1 +1,1 @@
-Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
+The 1950 World Cup final between Uruguay and Brazil at the Maracanã Stadium in Rio de Janeiro remains the highest-attended soccer match in history, with over 173,000 spectators.
