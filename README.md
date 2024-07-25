@@ -1,1 +1,1 @@
-The FIFA Women's World Cup has grown in popularity and prestige, with the United States winning the tournament four times as of 2019.
+Dennis Bergkamp's goal for the Netherlands against Argentina in the 1998 FIFA World Cup, where he controlled a long pass with a sublime touch before finishing, is revered for its technical brilliance.
