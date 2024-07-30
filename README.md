@@ -1,1 +1,1 @@
-The development of sports science and analytics has led to advancements in player conditioning, injury prevention, and tactical analysis in soccer.
+The 1999 UEFA Champions League final between Manchester United and Bayern Munich saw United score two goals in injury time to win the treble.
