@@ -1,1 +1,1 @@
-The 1999 UEFA Champions League final between Manchester United and Bayern Munich saw United score two goals in injury time to win the treble.
+Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
