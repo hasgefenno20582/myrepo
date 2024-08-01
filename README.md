@@ -1,1 +1,1 @@
-Camp Nou, the home stadium of FC Barcelona, is the largest soccer stadium in Europe, with a seating capacity of over 99,000 spectators.
+The rivalry between FC Barcelona and Real Madrid, known as "El Clásico," is one of the most intense and storied rivalries in world soccer.
