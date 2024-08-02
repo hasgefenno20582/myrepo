@@ -1,1 +1,1 @@
-The rivalry between FC Barcelona and Real Madrid, known as "El Clásico," is one of the most intense and storied rivalries in world soccer.
+Cristiano Ronaldo is the all-time leading goal scorer in UEFA Champions League history, with over 130 goals to his name.
